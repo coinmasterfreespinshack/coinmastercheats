@@ -1,6 +1,7 @@
 Coin Master Free Spins - Unlimited Coin Master Cheats Hack
 
 [Click Here! BARLOG.ORG/CM  - unlimited Coins & Spins Generator for COIN MASTER!](https://barlog.org/cm)
+
 ![Coin Master Hack](https://d30womf5coomej.cloudfront.net/a/eb/1222c302-17e3-4399-8b2d-db8c48769df9.jpg)
 
 Things which you should know about Coin Master
